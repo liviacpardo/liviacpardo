@@ -7,11 +7,11 @@ Meu nome é LIvia Costa Pardo
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 - Estudo no Colégio Jayem Canet 
 
-### Você pode entrar em contato comigo :mailbox
+### Você pode entrar em contato comigo 📫
 
 livia.pardo2escola.pr.gov.br
 
 @liviacpardo
 
-![descrição do GIF](https://tenor.com/pt-BR/view/luan-santana-gif-22296443)
+![](https://tenor.com/pt-BR/view/luan-santana-gif-22296443)
 
