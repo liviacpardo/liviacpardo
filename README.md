@@ -13,5 +13,5 @@ livia.pardo2escola.pr.gov.br
 
 @liviacpardo
 
-![descrição do GIF](link GIF do Tenor)
+![descrição do GIF](https://tenor.com/pt-BR/view/luan-santana-gif-22296443)
 
