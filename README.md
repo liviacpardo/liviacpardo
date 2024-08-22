@@ -5,7 +5,7 @@ Meu nome é LIvia Costa Pardo
 - Estou estudando na Alura
 - Estou me desenvolvendo na linguagem JavaScript
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
-- Estudo no Colégio Jayem Canet 
+- Estudo no Colégio Jayme Canet 
 
 ### Você pode entrar em contato comigo 📫
 
@@ -13,5 +13,5 @@ livia.pardo2escola.pr.gov.br
 
 @liviacpardo
 
-![descrição do GIF](https://tenor.com/pt-BR/view/luan-santana-gif-22296443)
+![descrição do GIF](https://media1.tenor.com/m/TgFnhfzKtgcAAAAC/luan-santana-what.gif)
 
