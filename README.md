@@ -13,4 +13,4 @@ livia.pardo@escola.pr.gov.br
 
 @liviacpardo
 
-![descrição do GIF](https://tenor.com/pt-BR/view/charles-leclerc-heart-hands-gif-8530935494952848698)
+![descrição do GIF](https://tenor.com/pt-BR/view/luan-santana-smile-handsome-gif-14415337)
