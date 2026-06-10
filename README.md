@@ -13,4 +13,4 @@ livia.pardo@escola.pr.gov.br
 
 @liviacpardo
 
-![descrição do GIF](https://tenor.com/pt-BR/view/luan-santana-smile-handsome-gif-14415337)
+![descrição do GIF]([https://tenor.com/pt-BR/view/luan-santana-smile-handsome-gif-14415337](https://tenor.com/pt-BR/view/luan-luansantana-gif-14708859))
